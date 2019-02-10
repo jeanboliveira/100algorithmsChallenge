@@ -1,4 +1,4 @@
-### Check Out My [YouTube Channel](https://www.YouTube.com/CodingTutorials360)
+### Check Out My [YouTube Channel](https://www.YouTube.com/CodingTutorials360) - Dylan Israel
 
 ##### Algorithm Challenge Available At [CodeFights](https://codefights.com/company-challenges/codefights/gJMBmTwHHMF8mbQvH)
 ---
